@@ -1,9 +1,19 @@
 
 推荐
+
+
 Telegram 客户端界面中文汉化：https://t.me/yxbjx/2255803
+
+
 电报知识库：https://t.me/YinxiangBiji_News/954
+
+
 Telegram电报中文群组导航搜你感兴趣的群  ：https://t.me/YiSoSuoYin
-电报十万人群：https://t.me/yxbjx
+
+
+电报十万人群：https://t.me/yisososuo
+
+
 Telegram中文圈：https://t.me/tgzhcn
 群组 Group
 京豆
